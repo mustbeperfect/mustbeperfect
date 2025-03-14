@@ -1,1 +1,1 @@
-I ❤️ open source.
+I love open source.
