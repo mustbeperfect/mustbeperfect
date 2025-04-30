@@ -1,1 +1,1 @@
-Open source. Forever.
+I like science fiction, exploration, and tech.
