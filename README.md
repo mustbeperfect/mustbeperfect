@@ -1,1 +1,1 @@
-I like science fiction, exploration, and tech.
+18. Science fiction. Exploration. Tech.
