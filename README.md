@@ -1,1 +1,1 @@
-I'm 18. I like science fiction, exploration, and tech.
+I'm 18. I like to explore. 🌴
