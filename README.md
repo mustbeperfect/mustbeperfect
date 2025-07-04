@@ -1,1 +1,1 @@
-I ❤️ Nuxt, Bun, and Go. 
+I love Nuxt, Bun, and Go. 
