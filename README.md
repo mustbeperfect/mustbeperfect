@@ -1,1 +1,1 @@
-I'm 18. I like to explore. 🌴
+I ❤️ Nuxt, Bun, and Go. 
