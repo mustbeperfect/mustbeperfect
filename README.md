@@ -1,4 +1,4 @@
-I like Bun, Vue, Go, MacOS, and Open Source.
+I like engineering and building stuff.
 
 Favorite movies: Arrival, Dune 1 & 2, and Ex Machina.
 
