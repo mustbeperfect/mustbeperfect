@@ -1,1 +1,1 @@
-A vast, vast, universe. 
+Time flies. 
