@@ -1,1 +1,1 @@
-Time flies. 
+Rage, rage against the dying of the light.
