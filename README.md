@@ -1,1 +1,1 @@
-Rage, rage against the dying of the light.
+I'm a maximalist minimalist. 
