@@ -1,1 +1,1 @@
-![Treadmill go kart](media/gokartwithtext.jpg)
+![Treadmill go kart](media/gokartzoomed.jpg)
