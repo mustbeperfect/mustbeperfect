@@ -1,1 +1,1 @@
-I'm a maximalist minimalist.
+![Treadmill go kart](media/gokartpose.jpeg)
