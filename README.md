@@ -1,1 +1,1 @@
-![Treadmill go kart](media/gokartzoomed.jpg)
+I'm a maximalist minimalist.
