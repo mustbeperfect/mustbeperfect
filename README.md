@@ -1,1 +1,1 @@
-I love open source and selfhosted software, but I value my sanity more 🫪
+I like to build stuff.
