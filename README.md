@@ -1,1 +1,1 @@
-Open source 💪
+Everything is deterministic.
