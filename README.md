@@ -1,1 +1,1 @@
-Everything is deterministic.
+I like open source. And Apple.
