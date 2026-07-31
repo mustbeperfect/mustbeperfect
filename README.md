@@ -1,1 +1,1 @@
-I like open source. And Apple.
+Use open source instead of proprietary services by tech giants. Proton to replace G-Suite. Helium or Zen instead of Chrome. If you enjoy every aspect of your life being gobbled up, documented, and distributed by tech giants, then more power to ya. 
