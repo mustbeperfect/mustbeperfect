@@ -1,1 +1,1 @@
-Use open source 🫪.
+Use open source 🫪
